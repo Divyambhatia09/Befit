@@ -1,2 +1,2 @@
 # Your Fitness Partner
-Befit Fitness Website
+we care for you
